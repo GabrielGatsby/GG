@@ -1,0 +1,2 @@
+# GG
+thank♂u♂sir
